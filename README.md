@@ -1,0 +1,2 @@
+# premium-hold-down-001-hold-down-clamp-t-slot-stud
+Tired of digging through a bin of mismatched T-slot studs and hold-down clamps, only to find you're missing the exact size for your next jig? This Notion template ends the chaos.  Hold Down Clamp &amp; T Slot Stud Craft Workshop is a centralized database that tracks every clamp, stud, and accessory in your workshop — by size, type, and location. No mor
